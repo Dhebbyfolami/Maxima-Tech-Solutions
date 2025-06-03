@@ -16,3 +16,11 @@ Maxima Tech Solutions is your trusted provider of smart tech, energy, and mobili
 - Smart Home Systems and Power Solutions
 
 - We deliver innovative, affordable services for homes and businesses.
+
+  
+
+**Copy the link bellow to checkout our official website**
+
+
+`` https://www.maximatechsolutions.com
+``
