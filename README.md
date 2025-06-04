@@ -24,3 +24,5 @@ Maxima Tech Solutions is your trusted provider of smart tech, energy, and mobili
 
 `` https://www.maximatechsolutions.com
 ``
+
+Or click the link under ABOUT.
